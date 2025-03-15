@@ -1,0 +1,1 @@
+# quicknews-privacy-policy
